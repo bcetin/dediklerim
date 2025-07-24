@@ -1,2 +1,3 @@
 # Bensözü ve Dediklerim Sözlüğü
 - Her şey olmayan bir şey bile yoktur.
+- Kelimeler bedava.
