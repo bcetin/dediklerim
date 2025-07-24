@@ -1,2 +1,2 @@
 # Bensözü ve Dediklerim Sözlüğü
-- Her şey olmayan bir şey yoktur
+- Her şey olmayan bir şey bile yoktur.
